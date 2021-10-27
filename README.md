@@ -7,3 +7,5 @@ sad
 https://youtu.be/n_Oo4XlM1vM
 fitoor
 https://youtu.be/gBxTKYkjMio
+funny status
+https://youtu.be/VIPG8QMnjNM
